@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
 - > Instagram: @mertttbyrktr
-  > e-mail: mertbayraktar1411@gmail.com
+- > e-mail: mertbayraktar1411@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
